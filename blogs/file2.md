@@ -1,4 +1,6 @@
-![image](file2!md/assets/67a34d43-37e3-4b9a-89d0-69f1ad236b3f.png)
+![image](file2!md/assets/ae043cb7-6c31-4474-9b40-97f6d2e50e43.png)
+
+![image](blogs/file2!md/assets/67a34d43-37e3-4b9a-89d0-69f1ad236b3f.png)
 
 ![image](blogs/file2!md/assets/b803154d-dffc-47e2-ad07-9f55955859c8.png)
 
