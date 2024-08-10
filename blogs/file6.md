@@ -1,8 +1,3 @@
-![image](file6!md/assets/3613ff54-b4c8-48e6-965a-6c05ae6a137c.png)
-
-![image](file6!md/assets/33343318-e4cb-40c9-9f77-a4c8a195f428.png)
-
-![image](file6!md/assets/9c77f31a-74ff-4b62-99bf-fe9ab5cf680a.png)
 
 ![image](https://github.com/user-attachments/assets/e267c692-d750-4ac2-8bb7-3f3421da5f1a)
 
